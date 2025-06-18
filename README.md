@@ -1,4 +1,4 @@
-# 📱 INDONESIAN STUDENT FESTIVAL COMMITTEE - (TEAM PROJECT)
+# INDONESIAN STUDENT FESTIVAL COMMITTEE - (TEAM PROJECT)
 #### Year Accomplished : 2024 - Pertukaran Mahasiswa Merdeka
 #### Role/Position : Human Resources staff
 #### Publication Link : [View Instagram Account](https://www.instagram.com/p/C7VlCBFSKmJ/?igsh=cHV0ZjB1bXBncnln)
